@@ -1,1 +1,1 @@
-![f1](https://user-images.githubusercontent.com/39207247/180597377-d182ec66-134d-46e7-b581-acca936f1463.jpg)
+<img width="647" alt="截屏2023-12-24 12 37 29" src="https://github.com/omedeto/omedeto/assets/39207247/542a9f88-92a6-4362-b49b-38e4e6a9b031">
